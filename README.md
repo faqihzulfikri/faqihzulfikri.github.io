@@ -1,1 +1,0 @@
-# faqihzulfikri.github.io
